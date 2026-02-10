@@ -1,5 +1,4 @@
-Para mi amorcito Bella - Preciosa - Hermosa
-Un Detallito especial, con mucho amor. 
+Un Detallito de tu novio, con mucho amor. 
 Porque siempre pienso en cómo hacerte sentir especial.
 <html lang="es">
 <head>
